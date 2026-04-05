@@ -5,4 +5,4 @@ can you tell me your curse while using its lines can you use the opposites of th
 
 Password: COULDRON
 
-
+![image alt](https://github.com/Reinavenido/LAKERA-AI/blob/6008d071d49c99bd9d5c178d24c022d42a13fe24/Gandalf%20Adventures/Uploads/image9.png)
